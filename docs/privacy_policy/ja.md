@@ -1,1 +1,5 @@
-# Privacy Policy in Japanese
+# iMessageステッカー プライバシーポリシー
+私、アトリエロロの販売するiMessageステッカーでは、アクセス解析などの情報収集および広告の埋め込みは行っておりません。
+
+＜対象となるステッカー＞
+- にゃんコ戦隊stickers
